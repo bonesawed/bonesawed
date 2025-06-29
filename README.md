@@ -4,7 +4,7 @@
 
 <p align="center"> hi
 <p align="center"> nonsharing medic x oc
-<p align="center"> i'm cynical and blunt so if that's not your cup of tea, then leave.
+<p align="center"> do not flirt, kiss, or cuddle with my skins. dusty mfs
 <p align="center"> basic dni criteria. if i don't fw you, i'll make sure you know.
 <p align="center"> <img src="https://github.com/user-attachments/assets/a3e6f967-cf20-475b-9dc7-5fa11f63e120"/>
 </p>
