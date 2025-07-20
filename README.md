@@ -2,7 +2,7 @@
  <img width="600" height="600" src="https://github.com/user-attachments/assets/1139a956-0e9d-4342-8436-a3230c9c64990">
 </p>
 
-<p align="center"> $\color{#775244}{ameㅤㅤㅤㅤㅤ/ㅤㅤㅤㅤㅤarywn}$ 
+<p align="center"> $\color{#775244}{⊹ ࣪ ˖ㅤameㅤㅤㅤㅤㅤ♡ㅤㅤㅤㅤㅤarywnㅤ⊹ ࣪ ˖}$ 
 <p align="center"> $\color{#475728}{sheㅤㅤㅤ-ㅤㅤㅤㅤher ㅤㅤ/ㅤㅤㅤㅤnineteen}$
 <p align="center"> $\color{#704636}{tf2 ㅤfan ㅤartistㅤㅤㅤㅤ- ㅤㅤㅤㅤfan ㅤㅤㅤanimator}$
 <p align="center"> $\color{#42241b}{nonsharingㅤㅤmedicㅤxㅤ oc  ㅤㅤ-ㅤㅤ medic ㅤshippers ㅤdni ㅤrespectfully}$ 
@@ -13,5 +13,5 @@
 
  <p align="center"> $\color{#775244}{𐔌ㅤ.ㅤwhisperㅤtoㅤintㅤw/ meㅤ-ㅤboopingㅤisㅤfineㅤㅤ!ㅤㅤjustㅤdon'tㅤdoㅤitㅤrepeatedly ֹ   ㅤ₊ ㅤ꒱}$
  <p align="center"> $\color{#475728}{doㅤnotㅤcopyㅤ,ㅤtakeㅤheavyㅤinspoㅤ,ㅤorㅤuploadㅤmyㅤskinsㅤeither.ㅤthankㅤyouㅤㅤ!}$
- <p align="center"> $\color{#FF0000}{i am not c + h friendly unless we're already friendsㅤ, or i feel comfortable around you.}$
- <p align="center"> $\color{#FF0000}{basic dni criteria  -  this includes proship/comship/darkship + fans of problematic media, fujoshi and himedanshi}$
+ <p align="center"> $\color{#704636}{iㅤamㅤnotㅤcㅤ+ㅤhㅤ/ㅤkissㅤfriendlyㅤunlessㅤwe'reㅤalreadyㅤfriendsㅤ,ㅤorㅤiㅤfeelㅤcomfortableㅤaroundㅤyou.}$
+ <p align="center"> $\color{#42241b}{basicㅤdniㅤcriteriaㅤ-ㅤthisㅤincludesㅤproship/comship/darkshipㅤ+ㅤfansㅤofㅤproblematicㅤmedia,ㅤfujoshiㅤandㅤhimedanshi}$
