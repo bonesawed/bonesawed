@@ -11,7 +11,7 @@
  <img width="100" height="100" src="https://github.com/user-attachments/assets/601fb94c-8993-446f-8d0b-3809a1436451"> 
  <img width="100" height="100" src="https://github.com/user-attachments/assets/2ec93561-1802-4b10-968a-dbe3a2b76f59" hspace="10">
 
- <p align="center"> $\color{#5e403a}{𐔌ㅤ.ㅤwhisperㅤtoㅤintㅤw/ meㅤ-ㅤboopingㅤisㅤfineㅤㅤ!ㅤㅤjustㅤdon'tㅤdoㅤitㅤrepeatedly ֹ   ㅤ₊ ㅤ꒱}$
- <p align="center"> $\color{#645e3e}{doㅤnotㅤcopyㅤ,ㅤtakeㅤheavyㅤinspoㅤ,ㅤorㅤuploadㅤmyㅤskinsㅤeither.ㅤthankㅤyouㅤㅤ!}$
+ <p align="center"> $\color{#775244}{𐔌ㅤ.ㅤwhisperㅤtoㅤintㅤw/ meㅤ-ㅤboopingㅤisㅤfineㅤㅤ!ㅤㅤjustㅤdon'tㅤdoㅤitㅤrepeatedly ֹ   ㅤ₊ ㅤ꒱}$
+ <p align="center"> $\color{#475728}{doㅤnotㅤcopyㅤ,ㅤtakeㅤheavyㅤinspoㅤ,ㅤorㅤuploadㅤmyㅤskinsㅤeither.ㅤthankㅤyouㅤㅤ!}$
  <p align="center"> $\color{#FF0000}{i am not c + h friendly unless we're already friendsㅤ, or i feel comfortable around you.}$
  <p align="center"> $\color{#FF0000}{basic dni criteria  -  this includes proship/comship/darkship + fans of problematic media, fujoshi and himedanshi}$
