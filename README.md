@@ -14,4 +14,4 @@
  <p align="center"> $\color{#775244}{𐔌ㅤ.ㅤwhisperㅤtoㅤintㅤw/ meㅤ-ㅤboopingㅤisㅤfineㅤㅤ!ㅤㅤjustㅤdon'tㅤdoㅤitㅤrepeatedly ֹ   ㅤ₊ ㅤ꒱}$
  <p align="center"> $\color{#475728}{doㅤnotㅤcopyㅤ,ㅤtakeㅤheavyㅤinspoㅤ,ㅤorㅤuploadㅤmyㅤskinsㅤeither.ㅤthankㅤyouㅤㅤ!}$
  <p align="center"> $\color{#704636}{iㅤamㅤnotㅤcㅤ+ㅤhㅤ/ㅤkissㅤfriendlyㅤunlessㅤwe'reㅤalreadyㅤfriendsㅤ,ㅤorㅤiㅤfeelㅤcomfortableㅤaroundㅤyou.}$
- <p align="center"> $\color{#42241b}{basicㅤdniㅤcriteriaㅤ-ㅤthisㅤincludesㅤproshipㅤ+ㅤfansㅤofㅤproblematicㅤmedia,ㅤandㅤfujoshiㅤ+ㅤhimedanshi}$
+ <p align="center"> $\color{#42241b}{basicㅤdniㅤcriteriaㅤ-ㅤthisㅤincludesㅤproshipㅤ+ㅤfansㅤofㅤproblematicㅤmediaㅤandㅤfujoshiㅤ+ㅤhimedanshi}$
