@@ -11,7 +11,7 @@
  <img width="100" height="100" src="https://github.com/user-attachments/assets/601fb94c-8993-446f-8d0b-3809a1436451"> 
  <img width="100" height="100" src="https://github.com/user-attachments/assets/2ec93561-1802-4b10-968a-dbe3a2b76f59" hspace="10">
 
- <p align="center"> $\color{#775244}{𐔌ㅤ.ㅤwhisperㅤtoㅤintㅤ/ i⠀have⠀public⠀chats⠀offㅤ-ㅤboopingㅤisㅤfineㅤㅤ!ㅤㅤjustㅤdon'tㅤdoㅤitㅤrepeatedly ֹ   ㅤ₊ ㅤ꒱}$
+ <p align="center"> $\color{#775244}{𐔌ㅤ.ㅤwhisperㅤtoㅤint⠀w/⠀me⠀-ㅤboopingㅤisㅤfineㅤㅤ!ㅤㅤjustㅤdon'tㅤdoㅤitㅤrepeatedly ֹ   ㅤ₊ ㅤ꒱}$
  <p align="center"> $\color{#475728}{doㅤnotㅤcopyㅤ,ㅤtakeㅤheavyㅤinspoㅤ,ㅤorㅤuploadㅤmyㅤskinsㅤeither.ㅤthankㅤyouㅤㅤ!}$
  <p align="center"> $\color{#704636}{iㅤamㅤnotㅤcㅤ+ㅤhㅤ/ㅤkissㅤfriendlyㅤunlessㅤwe'reㅤalreadyㅤfriendsㅤ,ㅤorㅤiㅤfeelㅤcomfortableㅤaroundㅤyou.}$
  <p align="center"> $\color{#42241b}{basicㅤdniㅤcriteriaㅤ-ㅤthisㅤincludesㅤminorsㅤ,ㅤproship/darkship/comshipㅤandㅤfujoshiㅤ+ㅤhimedanshi}$
