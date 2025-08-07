@@ -2,7 +2,7 @@
  <img width="600" height="600" src="https://github.com/user-attachments/assets/1139a956-0e9d-4342-8436-a3230c9c64990">
 </p>
 
-<p align="center"> $\color{#775244}{⊹ ࣪ ˖ㅤameㅤㅤㅤㅤㅤ♡ㅤㅤㅤㅤㅤarywnㅤ⊹ ࣪ ˖}$ 
+<p align="center"> $\color{#775244}{⊹ ࣪ ˖ㅤameㅤㅤㅤㅤㅤ♡ㅤㅤㅤㅤㅤardenㅤ⊹ ࣪ ˖}$ 
 <p align="center"> $\color{#475728}{sheㅤㅤㅤ-ㅤㅤㅤㅤher ㅤㅤ/ㅤㅤㅤㅤnineteen}$
 <p align="center"> $\color{#704636}{tf2 ㅤfan ㅤartistㅤㅤㅤㅤ- ㅤㅤㅤㅤfan ㅤㅤㅤanimator}$
 <p align="center"> $\color{#42241b}{nonsharingㅤㅤmedicㅤxㅤ oc  ㅤㅤ-ㅤㅤ medic ㅤshippers ㅤdni ㅤrespectfully}$ 
