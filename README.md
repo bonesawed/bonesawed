@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-    <img width="60%" src="https://github.com/user-attachments/assets/99638074-80eb-4f9f-bdfa-3cb8f32c7b33">
+    <img width="60%" src="https://github.com/user-attachments/assets/bc3f896f-d9c2-45dd-914e-2126617a4859">
 </p>
 
 <p align="center" width="100%">
@@ -8,5 +8,5 @@
 
 
 <p align="center" width="100%">
-    <img width="60%" src="https://github.com/user-attachments/assets/99638074-80eb-4f9f-bdfa-3cb8f32c7b33">
+    <img width="60%" src="https://github.com/user-attachments/assets/bc3f896f-d9c2-45dd-914e-2126617a4859">
 </p>
